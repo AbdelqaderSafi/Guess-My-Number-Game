@@ -1,3 +1,3 @@
-##🔗 Live Demo
+## 🔗 Live Demo
 
 Enjoy the game  
